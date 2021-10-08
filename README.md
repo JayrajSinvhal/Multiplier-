@@ -1,1 +1,1 @@
-# Multiplier-
+hey guys first of all i fucking hate y'all and second of all i hate coding but i made this because i fell like y'all need help so i made a **Program** that can change y'all lives this shitty thing can get you the table of any number but it is only till ten so fuck y'all and also make sure to study and learn Maths alright kids byee
